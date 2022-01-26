@@ -33,5 +33,5 @@ Thanks to TCR, NADYATJIA, DLL😂😂
 Maaf yang nggak kesebut
 Mau tanya tanya? Chat
 Id line: line.me/ti/p/~shandiap
-Ig: @ken.ar_
+
 υnιтy тeaм вoт
